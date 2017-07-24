@@ -12,7 +12,7 @@
 ## 图片
 
 
-！【】（http://otl946jkz.bkt.clouddn.com/%E6%8D%95%E8%8E%B7.PNG）
+！【】 (http://ww1.sinaimg.cn/mw690/006mu3WPgy1fhv6z65v5pj318l0g80t2.jpg)
 
 ## 总结
 
