@@ -12,8 +12,7 @@
 ## 图片
 
 
-！[] (http://otl946jkz.bkt.clouddn.com/%E6%8D%95%E8%8E%B7.PNG)
-
+！【】 （http://otl946jkz.bkt.clouddn.com/%E6%8D%95%E8%8E%B7.PNG）
 ## 总结
 
 
