@@ -12,7 +12,7 @@
 ## 图片
 
 
-！[图片] (http://ww1.sinaimg.cn/large/006mu3WPgy1fhv2hgm6m5j318l0g80t2.jpg)）
+！[图片] (http://ww1.sinaimg.cn/large/006mu3WPgy1fhv2hgm6m5j318l0g80t2.jpg)
 
 ## 总结
 
